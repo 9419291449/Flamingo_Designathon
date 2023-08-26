@@ -20,5 +20,5 @@
   + Poster depicting the essence of the brand
     
 **Merchandise Design**
-  + Indo-aesthetic designs to be embroidered on a t-shirt.
+  + Indo-aesthetic designs to be done on a t-shirt.
   + Minimum no. of t-shirts required for a collection: 3
